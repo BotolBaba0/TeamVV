@@ -1,2 +1,0 @@
-# TeamVV
-©TeamVV
